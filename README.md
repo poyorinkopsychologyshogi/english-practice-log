@@ -1,2 +1,9 @@
 # english-practice-log
-This is a repository for practicing English writing.
+This is a repository for practicing English writing.Open for review and feedback!
+
+My first repository has gotten started.Let me introduce myself.I am a 22 year-old japanese and an English learner and am being on the verge of whether I can
+live my life as far as I can or I can live my life until 30.There is no concrete reason that backs up this hypothesis.Although I am not depressed,I feel such a sense of danger on a daily basis.
+How do you feel? Are you thinking "A self-loathing man of inaction emerged again."?That's right!I am a self-loathing man of inaction!I am a "defeatist who can never quite give up"! But,the difference between "him" and me is whether a person who acknowledges who I am and wants to change this environment or not."His" cognition is distorted, though I am but I'm an "improver" as well.
+What am I striving for? The goal of mine actually varies.I have an old brother who has depression and I think is vulnerable to gaming.He is struggling with his anxiety and his uncertain future.My parents are struggling with him and me as well.One of my goals is to make my family's uncertainty clearer.（The fact I take care of my family and it seems as if only my family were what I can rely on is a feature of self-loathing man.）
+My second goal is to be financially independent.People may say this is the most crucial thing I need to tackle first.Yes.I think so.But, it is the first time when I realize that the world is not what I used to idealize but what I used to hate since one of my friends told me the reality.My idea I used to have was distorted, now I recognize.All things considered,I provisinally define "effort" as a term that we resist the society and force ourselves to adapt it to survive.
+I am trying to make "effort" in this context.I would love to write down my "efforts".
